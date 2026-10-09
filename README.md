@@ -51,6 +51,8 @@
 ## 🤝 Let's Connect
 
 * 💻 GitHub: [@vishal-1020](https://github.com/vishal-1020)
+* 💼 LinkedIn: [Vishal Kashyap](https://www.linkedin.com/in/vishal-kashyap-b47063378/)
+
 
 ---
 
